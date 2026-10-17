@@ -10,7 +10,7 @@ That verdict seemed flawed to me even then. During my senior year, I defended Ca
 
 Fifty years after the 1976 election, the numbers support that contrarian view. Judged by tangible outcomes—keeping the peace, addressing structural economic trouble, and anticipating long-term problems with an engineer's discipline—Carter compiled a record that compares favorably with any modern successor. The choice between his approach and that of later presidents comes down to what citizens want from the office: a showman who motivates a crowd, or an analytical steward who works through the details.
 
-## A military record without a war
+## Decades of war and death
 
 Data from Brown University's Costs of War Project and the Tufts University Military Intervention Project show the pattern of American intervention over the last fifty years:
 
